@@ -22,4 +22,5 @@
 <br/>
 
 Apaixonado por Tecnologia e pelo mundo do desenvolvimento 👨‍💻👨‍💻.
+Guitarrista Frustrado kkk , Amante de Música🎸🎸
 
