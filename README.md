@@ -21,6 +21,7 @@
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=AdrianoAmorim&layout=compact)](https://github.com/AdrianoAmorim/)
 <br/>
 
-Apaixonado por Tecnologia e pelo mundo do desenvolvimento 👨‍💻👨‍💻.
+Apaixonado por Tecnologia e pelo mundo do desenvolvimento 👨‍💻👨‍💻. 
+<br/>
 Guitarrista Frustrado kkk , Amante de Música🎸🎸
 
